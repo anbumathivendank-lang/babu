@@ -1,1 +1,1 @@
-bankai muzuno hiti tachi
+bankai muzuno
